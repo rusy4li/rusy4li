@@ -1,5 +1,7 @@
+
 ### ⚡ rusy4li
-<div><img src="https://i.ibb.co/z8SBtjG/zenitsuk-sa.gif" height="69px"></div>
+![zenitsukısa](https://user-images.githubusercontent.com/90040826/151799722-efc852f2-f75b-4b22-8d2c-df35515bda22.gif)
+
 
 <h2><em>📫 contact me:</h2></em>
 <li><a target="_blank" href="https://rusy4.xyz">Website</a></li>
