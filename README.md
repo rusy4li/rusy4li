@@ -1,5 +1,6 @@
 
 ### ⚡ rusy4li
+<img src="https://i.ibb.co/GxQPk1x/aniyuki-anime-dance-gif-22.gif">
 ![zenitsukısa](https://user-images.githubusercontent.com/90040826/151799722-efc852f2-f75b-4b22-8d2c-df35515bda22.gif)
 
 
